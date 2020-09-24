@@ -1,4 +1,4 @@
-<h1>Fixadoor Garage Door Repair Mississauga</h1>
+<h2>Fixadoor Garage Door Repair Mississauga</h2>
 <ul>
     <li><a href="https://grgdoorfix.com/garage-door-repair-toronto/">Garage Door Repair Toronto</a></li>
     <li><a href="https://grgdoorfix.com/garage-door-repair-ajax/">Garage Door Repair Ajax</a></li>
